@@ -1,2 +1,0 @@
-# fananji.github-io
-After
